@@ -4,7 +4,7 @@
 
 Uncensored version of the following image can be found at https://i.imgur.com/rga6845.jpg (NSFW)
 
-![](https://i.imgur.com/0KPJbl9.jpg)
+
 
 **Classifier classes:**
 |class name   |  Description    |
